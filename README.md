@@ -1,2 +1,2 @@
 # Hello-World
-Building blocks and stuffs
+I'm a noob but one day i wont be.
